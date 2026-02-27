@@ -1,0 +1,2 @@
+![[Azemar the Bored.png|750]]
+Azemar found the Ocean temple with 1 part of the [[Tetrahedron de Orgone Vontinere]].  Here there was an endless supply of fresh food, which when fed upon gave him a little contact high.  There was a Palace and a ruined city.  And a steady supply of treasure, which he could keep for himself.  Occasionally he would recruit some of the inhabitants for his personal guard. It was a boring existence, and he planned to move on any day.  He just couldn't bring himself to leave.

@@ -1,0 +1,9 @@
+![[Arduin.png|500]]
+Arduin is a retired astral elfin pirate. Missing her time at sea (both physical and astral) she commissioned his yacht, using her ill-gotten gains. With the ability to sail the astral sea, she planned to navigate elemental water plane pockets. Decades later, the ship ended up on Zerith, though it is unknown how. The ship is able to open portals to reach destinations. Most notably, it can open a portal to anywhere within 3 miles of Arduin's trinket.  It can also open portals to a special cove far out to sea, to Arbor island.
+
+A bearer of Arduin's Token may use it to unlock the controls.
+![[Arduins Token.png|500]]
+
+A competant sailor though can unlock a 2 part moderate skill challenge to attune to the trinket. The first part is going to be sailing knowledge / ability, whether as a captain, or as supporting crew. Sailing the ship on open waters, without using the magical controls. A successful skill challenge will awaken and summon the spirit of Arduin, who is bound to his ship. Failing the skill challenge means they can try again after 30 days, once they have more experience.
+
+A second charisma based skill challenge will allow them to attune to the ship itself, and Arduin. Failing the charisma skill challenge will still allow them to attune, but Arduin will be hostile and contentious, and only fulfill the bare minimum of the attunement, coming when summoned, but without the use of portals, meaning it cannot plane hop, and will take standard travel time to arrive. She will also make no efforts to help or save the party should the ship run afoul. Success in the challenge will allow them to unlock the interplanar travel ability (though it needs repairs to do so) and summon the yacht nearly instantaneously through it's portal. Arduin will also gladly sail the ship as captain, and even help the PC's when navigating harsh weather or even the astral sea.

@@ -1,0 +1,7 @@
+An army of mundane (non-magical) warriors 5000 strong assembled, and with the help of several wizards who lost family in the attack, marched through a portal, and assaulted the Evoden academy.  The battalions were a combined force from eastern Zerith, from Westbrook and Easthaven.
+
+The losses were catastrophic, the army losing 50 soldiers for each wizard they managed to kill.  Shortly thereafter, the dead started to rise.  Zombies and skeletons filled the ranks of the army, as fast as they fell, and the wizards were slowly but steadily over-run.
+
+As the battle waged, the undead fought with a military precision…. Until they didn’t.  Chaos suddenly erupted among the undead soldiers, as the force that was guiding them stopped.  Perhaps the wizard controlling the army died, or at least lost control.  The undead swept the academy, killing everyone in their path.  Wizard and soldier alike, women, children.  And as each body fell, the undead swarm grew.  Eventually there were none left alive, save a few soldiers which managed to barricade themselves into a small building, and escape as the fight moved away from them.  As they fled, they watched the undead mob leave the academy and head north, to the bustling port town of Melanii.  A trail of blight and death, seeming to rise from the land itself, was left in their wake. They traveled east on foot to Korad-Tir, and reported the battle to the Landiss.
+
+[[Session 8 - Ocean City]]

@@ -1,0 +1,11 @@
+The world, while currently peaceful, is about to be plunged into a magic based war.  The Landiss Wizards specifically are going to wage a war across the land against all other magic users of the realm.  They view all other magic wielders as either with them or against them. 
+
+The initial conflict is going to start with the burning down of the Damarian wizard's stronghold, located just outside of Corvus.  There will be evidence planted to indicate the Evoden.  The Damarian will use their mundane courts to raise an army to respond, destroying an Evoden school near Teralis.  Assuming the PC's are not yet involved, the army will win, slaying all at the school, mostly students.
+
+As other factions join in the conflict, more and more innocents will be caught in the crossfire.  The Landiss wizards will approach the PC's asking them to help recover a magical reagent (the eggshell of Tiamat) to allow them to create an artefact that should help end the war.  With the help of an NPC wizard, the party will succeed, BUT once the eggshell is in the hands of the wizard, the party will be teleported to somewhere in the planes (Sigil or City of Brass, etc.) while the wizard returns to Zerith with the eggshell and the Landiss Wizards can create the orbs of Dragon Kind.
+
+By the time the PC's return, the world of Zerith will be in Chaos, the dead will have risen, storms will rage across the land, armies of dragons will raze whole cities to the ground.  The PC's will have the choice to restore peace, and either save or destroy each faction of magic, as well as decide how violently they should end.
+
+In the confrontation with the Landiss, the wizards will attempt to summon a planar ally to aid them.  As the battle becomes clearly unwinnable, the summoned demon will turn on them, blighting the land around them, turning the jungle into a wide expanse of desert.
+
+Eventually the PC's will succeed in bringing peace to the land, ushering in a new age of peace, and fledgling growth as the land of Zerith recovers, scarred, but healing from the damage done.
